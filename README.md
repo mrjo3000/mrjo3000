@@ -1,8 +1,14 @@
-- 👋 Hi, I’m @mrjo3000
-- 👀 I’m interested in blooket hacks and normal hacks
-- 🌱 I’m currently learning how to do hacks
-- 💞️ I’m looking to collaborate on hacks
-- 📫 How to reach me try at 014753@cm201u.org 
+- Hi, I’m Jmo_fr
+- I’m interested in getting a job as a staff/admin on eaglercraft servers,
+- I’m currently learning how to make good eaglercraft servers,
+- I’m looking to collaborate on any eaglercraft problems or commands. :D
+- You can reach me at Jmosuxatlife@gmail.com | or the eaglercraft servers listed below!
+wss://mc.sealcentral.co (Mostly on creative with the username "Jmofrfr" or "Jmo")
+wss://arch.mc (again, usually on creative or survival with the username "Jmo_fr")
+[insert blobcraft ip here]
+[insert other ip's here...]
 
-mrjo3000/mrjo3000 is ✨ special ✨
+Theres probably more servers but i dont have the ip's or i dont even know what the server IS as..
+
+i am ✨ special ✨
 
